@@ -1,0 +1,1 @@
+bread, tomatoe sause, cabbage leaf, tomatoe & onion slice.
